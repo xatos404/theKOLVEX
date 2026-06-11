@@ -1,4 +1,4 @@
-# Hey, I'm KOLVEX 👋
+# Hey, I'm XATOS 👋
 
 > CSE Student | Builder | Problem Solver
 
